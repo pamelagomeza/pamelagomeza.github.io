@@ -1,1 +1,0 @@
-# pamelagomeza.github.io
